@@ -1,3 +1,6 @@
+editing this a bit 
+
+
 adding some stuff to line 1
 
 dont like this nch update
