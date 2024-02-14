@@ -6,8 +6,8 @@ adding some stuff to line 1
 
 adding some stuff to line 1!
 
-dont like this nch update
+dont like this nch update!
 
-this is a new change
+this is a new change!
 
-going to add more
+going to add more!
